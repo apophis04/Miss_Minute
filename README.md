@@ -4,4 +4,4 @@ Miss Minute Wallpaper: Experience the charm of the TVA's helpful virtual assista
 
 
 ## How to use/apply
-- explained it the attached video
+- use lively ( download from microsoft store app or from browser )
